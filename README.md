@@ -1,2 +1,2 @@
-## oi tudo bem? prazer Lorrayne!👋
+## Oi tudo bem? prazer Lorrayne!👋
 
